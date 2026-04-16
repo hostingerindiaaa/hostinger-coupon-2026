@@ -128,8 +128,7 @@ This exclusive **Hostinger discount code** helps you save big on shared hosting,
 4. Discount auto-applied  
 5. Complete payment  
 
-👉 **Get Hostinger Coupon Code 2026 (91% OFF)**  
-https://www.hostinger.com/in?REFERRALCODE=HOSTINGEROFF91  
+👉 **Get Hostinger Coupon Code 2026 (91% OFF)**   
 
 ---
 
